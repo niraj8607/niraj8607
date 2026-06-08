@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am looking for job
+Software Engineer 
 
 
 ## 🌐 Socials:
